@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **malhar17.desai@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XueVyyrRq9i2f3wu36n6PFeUybEGky9C/view?usp=sharing](https://drive.google.com/file/d/1XueVyyrRq9i2f3wu36n6PFeUybEGky9C/view?usp=sharing)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/14linIdnaS7fhRTFbburcYCsbJ1AXRq9D/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
